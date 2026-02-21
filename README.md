@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Zunkiree Labs<br>👯 I’m looking to collaborate on solving real world problems<br>🌱 I’m currently leveling up my skills<br>💬 Ask me about tech related things<br>⚡ Fun fact: I love making impossible things into small experiments
+🔭 I’m currently working at Zunkiree Labs<br>👯 I’m looking to collaborate on solving real world problems<br>🌱 I’m currently leveling up my skills<br>💬 Ask me about tech related things<br>⚡ Fun fact: I love making impossible things into small experiments
 
 
 ## 🌐 Socials:
